@@ -1,3 +1,4 @@
 # ENHYPEN
 Lee Heeseung
-耶波呦
+叽里咕噜爱因斯坦牛
+哈哈哈哈哈哈
